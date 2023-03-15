@@ -4,6 +4,6 @@
 
 ## Experiencia 
 
-- Prof. Unimar
-- Aquaponia
+- Técnico em elétroeletronica 
+- T.I na GOOGLE 
 ---
