@@ -12,6 +12,7 @@ Email: XXXXXXXXXXXXX
 
 Celular: XXXXXXXXXXXXX
 
+---
 
 ## Experiencia 
 
